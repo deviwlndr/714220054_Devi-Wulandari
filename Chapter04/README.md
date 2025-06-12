@@ -1,0 +1,1 @@
+Link Medium: https://medium.com/@deviw3438/prediksi-jenis-kulit-berdasarkan-kandungan-skincare-simpan-unduh-model-ml-secara-modular-3b151dc2e811
